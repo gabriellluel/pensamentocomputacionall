@@ -1,1 +1,1 @@
-# pensamentocomputacionall
+# 1apensamento
